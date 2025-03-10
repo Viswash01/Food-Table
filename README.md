@@ -9,6 +9,6 @@ Walnuts.
 
 
 
-Fresh Fruit, Almonds, Peanut, Milk.
+Fresh Fruit, Almonds, Peanut, Milk, Fish, Chicken, Salsa, Pumpkin seeds.
 
 
